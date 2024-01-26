@@ -17,4 +17,8 @@ Here are some ideas to get you started:
 
 “If we have chosen the position in life in which we can most of all work for mankind, no burdens can bow us down, because they are sacrifices for the benefit of all; then we shall experience no petty, limited, selfish joy, but our happiness will belong to millions, our deeds will live on quietly but perpetually at work, and over our ashes will be shed the hot tears of noble people.”
 
-- ⚡ Fun fact: I'm a normal newbie.
+- 🌱 I’m currently learning: everything! I'm a newbie in many things.
+- 🤔 I’m looking for help: whatever I can help you!
+- 💬 Ask me about: interesting/serious questions!
+- 📫 How to reach me: Email me!
+- ⚡ Fun fact: I'm a normal newbie!
