@@ -19,5 +19,5 @@ Here are some ideas to get you started:
 
 - 🌱 I’m currently learning: everything! I'm a newbie in many things.
 - 🤔 I’m looking for help: whatever I can help you!
-- 💬 Ask me about: interesting/serious questions!
+- 💬 Ask me about: interesting/serious(rigorous) questions!
 - 📫 How to reach me: email me!
