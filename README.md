@@ -20,5 +20,4 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning: everything! I'm a newbie in many things.
 - 🤔 I’m looking for help: whatever I can help you!
 - 💬 Ask me about: interesting/serious questions!
-- 📫 How to reach me: Email me!
-- ⚡ Fun fact: I'm a normal newbie!
+- 📫 How to reach me: email me!
