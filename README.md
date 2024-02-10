@@ -23,3 +23,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about: interesting/serious(rigorous) questions!
 - 📫 How to reach me: email me!
 - ⚡ Fun fact: Also could help you 古文/唐诗/宋词/元曲，围棋/象棋，笛/箫，书法，历史，or talking with other languages such as Français. I like 唐诗 very much in my youth!
+
+I still love science.
