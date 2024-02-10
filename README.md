@@ -12,14 +12,14 @@ Here are some ideas to get you started:
 - 💬 Ask me about ...
 - 📫 How to reach me: ...
 - 😄 Pronouns: ...
-- ⚡ Fun fact: ...
 -->
 
 “If we have chosen the position in life in which we can most of all work for mankind, no burdens can bow us down, because they are sacrifices for the benefit of all; then we shall experience no petty, limited, selfish joy, but our happiness will belong to millions, our deeds will live on quietly but perpetually at work, and over our ashes will be shed the hot tears of noble people.”
 
 “Be strict with yourself and be lenient with others.”
 
-- 🌱 I’m currently learning: everything! I'm a newbie in many things.
+- 🌱 I’m currently learning: everything! I'm a noob in many fields.
 - 🤔 I’m looking for help: whatever I can help you!
 - 💬 Ask me about: interesting/serious(rigorous) questions!
 - 📫 How to reach me: email me!
+- ⚡ Fun fact: Also could help you 古文/唐诗/宋词/元曲，围棋/象棋，笛/箫，书法，历史，or talking with other languages such as Français. I like 唐诗 very much in my youth!
