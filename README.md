@@ -19,9 +19,8 @@ Here are some ideas to get you started:
 “Be strict with yourself and be lenient with others.”
 
 - 🌱 I’m currently learning: everything! I'm a noob in many fields.
-- 🤔 I’m looking for help: whatever I can help you!
 - 💬 Ask me about: interesting/serious(rigorous) questions!
 - 📫 How to reach me: email me!
-- ⚡ Fun fact: Also could help you 古文/唐诗/宋词/元曲，围棋/象棋，笛/箫，书法，历史，or talking with other languages such as Français. I like 唐诗 very much in my youth!
+- ⚡ Fun fact: Also could help you 古文/唐诗/宋词/元曲，围棋，or talking with other languages such as Français. I like 唐诗 very much in my youth.
 
 I still love la science.
