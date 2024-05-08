@@ -21,6 +21,6 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning: everything! I'm a noob in many fields.
 - 💬 Ask me about: interesting/serious(rigorous) questions!
 - 📫 How to reach me: email me!
-- English is not my first language, also is not belonging to the same language family. My first language has a better old version I researched a long time before. 
+- English is not my first language, also is not belonging to the same language family. My first language has an old version I researched a long time before. 
 
 An idealist who try to be more pragmatic.
