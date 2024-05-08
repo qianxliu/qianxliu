@@ -21,6 +21,6 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning: everything! I'm a noob in many fields.
 - 💬 Ask me about: interesting/serious(rigorous) questions!
 - 📫 How to reach me: email me!
-- ⚡ Fun fact: Also could help you 古文/唐诗/宋词/元曲，围棋. I like 唐诗 very much in my youth.
 
-An idealist who try to be more pragmatic. <!--Inconsistent existence-->
+An idealist who try to be more pragmatic.
+English is not my first language.
