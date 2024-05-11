@@ -24,4 +24,4 @@ Here are some ideas to get you started:
 - English is not my first language, also is not belonging to the same language family. My first language has an old version I researched a long time before. 
 
 An idealist who try to be more pragmatic.
-Care basic science most. Not very good/font of discussing practical science because of lacking confidence.
+Care basic science most. Not very good at/font of engaging with practical science because of lacking confidence.
