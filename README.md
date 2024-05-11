@@ -18,9 +18,10 @@ Here are some ideas to get you started:
 
 “Be strict with yourself and be lenient with others.”
 
-- 🌱 I’m currently learning: everything! I'm a noob in many fields.
-- 💬 Ask me about: interesting/serious(rigorous) questions!
+- 🌱 I’m currently learning: everything basic! I'm a noob in many fields.
+- 💬 Ask me about: interesting/basic questions!
 - 📫 How to reach me: email me!
 - English is not my first language, also is not belonging to the same language family. My first language has an old version I researched a long time before. 
 
 An idealist who try to be more pragmatic.
+Care basic science most.
