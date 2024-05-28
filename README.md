@@ -18,10 +18,9 @@ Here are some ideas to get you started:
 
 “Be strict with yourself and be lenient with others.”
 
+"What we do may be small, but it has a certain character of permanence."
+
 - 🌱 I’m currently learning: everything basic! I'm a noob in many fields.
 - 💬 Ask me about: interesting/basic questions!
 - 📫 How to reach me: email me!
 - English is not my first language, also is not belonging to the same language family. My first language has an old version I researched a long time before. 
-
-An idealist who try to be more pragmatic.
-Care basic science. Not very good at/fond of engaging with rough practice because of lacking confidence.
