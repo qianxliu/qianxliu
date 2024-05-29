@@ -14,11 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 -->
 
-“If we have chosen the position in life in which we can most of all work for mankind, no burdens can bow us down, because they are sacrifices for the benefit of all; then we shall experience no petty, limited, selfish joy, but our happiness will belong to millions, our deeds will live on quietly but perpetually at work, and over our ashes will be shed the hot tears of noble people.”
-
 “Be strict with yourself and be lenient with others.”
-
-"What we do may be small, but it has a certain character of permanence."
 
 - 🌱 I’m currently learning: everything basic! I'm a noob in many fields.
 - 💬 Ask me about: interesting/basic questions!
