@@ -21,3 +21,7 @@ Here are some ideas to get you started:
 - 💬 Ask me about: interesting/basic questions!
 - 📫 How to reach me: email me!
 - English is not my first language, also is not belonging to the same language family. My first language has an old version I researched a long time before. 
+
+<!--
+I'm never sure I really contribute to humanity(I cann't feel the rough thoughts and I knowed not only 1-3 languages), so I like the simple/small concepts.
+-->
